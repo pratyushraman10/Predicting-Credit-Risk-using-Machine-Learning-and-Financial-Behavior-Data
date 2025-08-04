@@ -47,4 +47,3 @@ Author:
 Pratyush Raman  
 B.Tech, National Institute of Technology Rourkela  
 LinkedIn: https://www.linkedin.com/in/pratyushraman10
-LinkedIn: https://www.linkedin.com/in/pratyushraman10
